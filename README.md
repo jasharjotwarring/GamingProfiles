@@ -7,3 +7,4 @@
 6. Pokemon Unite Trainer ID → HC4RK00
 7. Roblox Username → Jasharjot
 8. Moba Legends: 5v5! ID → 1735901523
+9. Brawl Stars Usertag → #28R28C2VPP
